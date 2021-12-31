@@ -1,0 +1,1 @@
+# waldek84-interia.pl
